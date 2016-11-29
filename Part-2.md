@@ -3,4 +3,4 @@
 
 ### 群众是健忘的，但我们不会！
 
-### We don't forgive. We don't forget. We are The Justice League of SWJTU. Expect us.
+### We don't forgive. We don't forget. We are The Justice League Of SWJTU. Expect us.
