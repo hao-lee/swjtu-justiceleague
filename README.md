@@ -18,6 +18,7 @@
 # We Are The Justice League Of SWJTU
 
 如果制度不能维持公平惩处罪恶，那么我们——将成为正义力量的崛起
+
 *——Nicolas ZhaoSi, The patriarch of Nicolas family*
 
 
