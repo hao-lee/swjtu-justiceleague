@@ -18,3 +18,8 @@
 # We Are SWJTU Justice League
 
 如果制度不能维护正义惩处罪恶，我们——将是正义力量的崛起*——Nicolas ZhaoSi*
+
+
+# 参与本书写作
+
+请注册账号后在DISSCUSSIONS区发表意见，如果您会使用GitBook，我可以将您加入Collaborators。
