@@ -26,7 +26,7 @@
 
 但是，帖子所发的是一种思想，而思想——是不怕封号的。
 
-![](http://imgsrc.baidu.com/forum/pic/item/24bd4ba7d933c895fa0321acd11373f083020004.jpg)
+![尼古拉斯·盖伊·福克斯](http://imgsrc.baidu.com/forum/pic/item/24bd4ba7d933c895fa0321acd11373f083020004.jpg)
 
 
 # 投稿
