@@ -4,11 +4,11 @@
 
 ### 举报信照片：
 
-![](/images/Part-1/1.jpg)
+![](/images/Chapter-1/1.jpg)
 
-![](/images/Part-1/2.jpg)
+![](/images/Chapter-1/2.jpg)
 
-![](/images/Part-1/3.jpg)
+![](/images/Chapter-1/3.jpg)
 
 # 事件进展：
 
