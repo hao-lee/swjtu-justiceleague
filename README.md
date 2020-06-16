@@ -9,7 +9,6 @@
 
 # 目录
 
-* [前言（序）](README.md)
 * [一、事件全回顾](Chapter-1.md)
 * [二、致洗地党](Chapter-2.md)
 * [三、我们的要求](Chapter-3.md)
